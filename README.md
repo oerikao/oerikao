@@ -1,5 +1,5 @@
 Hi! <br>
-Call me Erika / Angel / Daydream or Forest <br>
+Call me Erika or Angel <br>
 Any / It + Xenos / Neos prns <br>
 Transneutral, Genderfluid and apagender <br>
 Fixated on Goobers, Crk and Dandys World <br>
